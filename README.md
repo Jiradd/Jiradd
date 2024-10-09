@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- 🌱 I’m currently a 1st year student studying at Adamson University🎓🎓
+- 🤔 Looking to expand my experience and learn more as an aspiring programmer!
+- 😄 Also a Gamer!
